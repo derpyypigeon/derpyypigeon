@@ -7,12 +7,9 @@ Sign my atabook and strawpage if you'd like!:
 https://pigeonnns.straw.page | https://derpypigeon.atabook.org
 
  pt status:
-- Online🟢- actively playing, fast responses! Int anytime :) - Busy🔴- semiafk, slow responses, whisper to int! - Away🌙- AFK, will not respond
+[Online🟢] - actively playing, fast responses! Int anytime :) [Busy🔴] - semiafk, slow responses, whisper to int! [Away🌙] - AFK, will not respond
 
-C+H- You may cuddle with or hide behind me :)
-DNI/DNIUF- Simply just leave me alone, it probaby means I'm not feeling well! Friends are still welcome to int.
-Comf- the skin i'm in is of a comfort character/person! :)
-Kin- the skin im in is of a character I strongly relate to or associate with!
+[C+H]- You may cuddle with or hide behind me :) - [DNI/DNIUF]- Simply just leave me alone, it probaby means I'm not feeling well! Friends are still welcome to int. - [Comf]- the skin i'm in is of a comfort character/person! :) - [Kin]- the skin im in is of a character I strongly relate to or associate with!
 
 ______________________________
 
