@@ -7,9 +7,7 @@ Sign my atabook and strawpage if you'd like!:
 https://pigeonnns.straw.page | https://derpypigeon.atabook.org
 
  pt status:
-Online🟢- actively playing, fast responses! Int anytime :)
-Busy🔴- semiafk, slow responses, whisper to int!
-Away🌙- AFK, will not respond
+- Online🟢- actively playing, fast responses! Int anytime :) - Busy🔴- semiafk, slow responses, whisper to int! - Away🌙- AFK, will not respond
 
 C+H- You may cuddle with or hide behind me :)
 DNI/DNIUF- Simply just leave me alone, it probaby means I'm not feeling well! Friends are still welcome to int.
