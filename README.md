@@ -4,6 +4,8 @@ i'm 18, and im asexual and greyromantic
 Sign my atabook and strawpage if you'd like!:
 https://pigeonnns.straw.page | https://derpypigeon.atabook.org
 
+______________________________
+ 
  pt status:
 [Online🟢] - actively playing, fast responses! Int anytime :) [Busy🔴] - semiafk, slow responses, whisper to int! [Away🌙] - AFK, will not respond
 
