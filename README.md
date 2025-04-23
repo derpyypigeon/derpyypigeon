@@ -1,8 +1,6 @@
 Call me Pigeon or Birdie! she/her is preferred, they/them is also fine!
 i'm 18, and im asexual and greyromantic
 
-all queer people are safe around me 🏳️‍🌈
-
 Sign my atabook and strawpage if you'd like!:
 https://pigeonnns.straw.page | https://derpypigeon.atabook.org
 
