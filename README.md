@@ -15,8 +15,10 @@ ______________________________
 
 ______________________________
 
-I am a multishipper so I am fine with any ships interacting! I respect all nonproblematic ship opinions. 
+I am a multishipper so I am fine with any ships interacting! I respect all nonproblematic ship opinions.
+
 my favorite SPN ships!: DeanxCastiel, MegxCastiel, SamxEileen, SamxRowena, JodyxDonna, CrowleyxBobby, EllenxBobby
+
 
 DNI if you're a proshipper. get away from me if you like wincest or samifer. /srs
 
