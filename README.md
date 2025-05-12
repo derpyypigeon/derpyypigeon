@@ -1,9 +1,10 @@
 (i dont know how to add images to this, so its boring mb😭)
 
-Call me Pigeon or Birdie! she/her is preferred, they/them is also fine!
-i'm 18 yrs old and asexual greyromantic
+Call me Pigeon or Birdie! - i'm 18 yrs old and asexual greyromantic
 
-Current obsessions: Supernatural, The Boys & Gotham Knights!!
+Current obsessions: Supernatural & The Boys
+
+Castiel and Hughie Campbell kinnie !! :3
 
 Sign my atabook and strawpage if you'd like!:
 https://pigeonnns.straw.page | https://derpypigeon.atabook.org
@@ -11,19 +12,16 @@ https://pigeonnns.straw.page | https://derpypigeon.atabook.org
 ______________________________
  
  pt status:
-[Online🟢] - actively playing, fast responses! Int anytime :) [Busy🔴] - semiafk, slow responses, whisper to int! [Away🌙] - AFK, will not respond
+[Online🟢] - actively playing, int anytime :) [Busy🔴] - semiafk, slow responses, whisper to int! [Away🌙] - AFK, will not respond
 
 ______________________________
 
-I am a multishipper so I am fine with any ships interacting! I respect all nonproblematic ship opinions.
+I am a multishipper so I am fine with any ships interacting! I respect all nonproblematic ship opinions!
 
-my favorite SPN ships!: DeanxCastiel, MegxCastiel, SamxEileen, SamxRowena, JodyxDonna, CrowleyxBobby, EllenxBobby
-
-
-proshippers dni
+proshippers DNI
 
 ______________________________
 
-I have social anxiety and may struggle with new people, so I apologize if I'm not talking much or matching your vibe, its not because of you!
+I sometimes struggle with socializing, mainly with new friends, so I apologize if I'm not talking much or matching your vibe. Its not because of you!
 💙
 have an amazing day! :)
