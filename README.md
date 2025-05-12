@@ -22,4 +22,4 @@ ______________________________
 
 I sometimes struggle with socializing, mainly with new friends, so I apologize if I'm not talking much or matching your vibe. Its not because of you!
 💙
-have an amazing day! :)
+thx for reading, have an amazing day! :)
