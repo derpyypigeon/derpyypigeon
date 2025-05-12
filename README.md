@@ -4,7 +4,7 @@ Call me Pigeon or Birdie! - i'm 18 yrs old and asexual greyromantic
 
 Current obsessions: Supernatural & The Boys
 
-Castiel and Hughie Campbell kinnie !! :3
+Castiel & Hughie Campbell kinnie !! :3
 
 Sign my atabook and strawpage if you'd like!:
 https://pigeonnns.straw.page | https://derpypigeon.atabook.org
