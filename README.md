@@ -1,6 +1,6 @@
 (i dont know how to add images to this, so its boring mb😭)
 
-Call me Pigeon or Birdie! - i'm 18 yrs old and asexual greyromantic
+Call me Pigeon or Birdie! - i'm 18 yrs old & asexual greyromantic
 
 Current obsessions: Supernatural & The Boys
 
