@@ -4,8 +4,8 @@ Call me Pigeon or Birdie! - i'm 18 yrs old & asexual greyromantic
 
 Current obsessions: Supernatural & The Boys
 
-Sign my atabook and strawpage if you'd like!:
-https://pigeonnns.straw.page | https://derpypigeon.atabook.org
+Sign my strawpage if you'd like!:
+https://pigeonnns.straw.page
 
 ______________________________
  
