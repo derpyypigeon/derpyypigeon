@@ -1,6 +1,7 @@
 (i dont know how to add images to this, so its boring mb😭)
 
-Call me Pigeon or Birdie! - i'm 18 yrs old & asexual greyromantic
+Call me Pigeon or Birdie! - may also call me the name of the skin I'm in!
+i'm 18 yrs old & asexual greyromantic
 
 Current obsessions: Supernatural & The Boys
 
@@ -10,16 +11,15 @@ https://pigeonnns.straw.page
 ______________________________
  
  pt status:
-[Online🟢] - actively playing, int anytime :) [Busy🔴] - semiafk, slow responses, whisper to int! [Away🌙] - AFK, will not respond
+[Online🟢] - actively playing, int anytime :) [Busy🔴] - semiafk, whisper to int! [Away🌙] - AFK, will not respond
 
 ______________________________
 
-I am a multishipper so I am fine with any ships interacting! I respect all nonproblematic ship opinions!
+I am a multishipper so I am fine with most ships interacting! I respect all nonproblematic ship opinions.
 
 proshippers DNI
 
 ______________________________
 
-I sometimes struggle with socializing, mainly with new friends, so I apologize if I'm not talking much or matching your vibe. Its not because of you!
-💙
-thx for reading, have an amazing day! :)
+I sometimes struggle with socializing, mainly with new friends, so sorry if I don't talk much!
+thx for reading 💙 have an amazing day! :)
