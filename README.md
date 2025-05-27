@@ -22,4 +22,5 @@ proshippers DNI
 ______________________________
 
 I sometimes struggle with socializing, mainly with new friends, so sorry if I don't talk much!
-thx for reading 💙 have an amazing day! :)
+
+Thx for reading 💙 have an amazing day! :)
