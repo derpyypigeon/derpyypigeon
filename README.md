@@ -15,7 +15,9 @@ ______________________________
 
 ______________________________
 
- I respect all nonproblematic ship opinions! but ships I personally don't like/I'm not in the mood for at the moment I prefer to not interact. don't take it personally :)
+ I'm a multishipper and I respect all nonproblematic ship opinions!
+ I'm fine with most ships interacting. If theres any I dislike I will put "dni" for it, but its nothing personsal! I just prefer ones I like or I'm not in the mood for it :)
+ 
 
 proshippers DNI ever 
 
