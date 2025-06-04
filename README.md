@@ -15,7 +15,7 @@ ______________________________
 
 ______________________________
 
- I respect all nonproblematic ship opinions! but ships I personally don't like/I'm not in the mood for at the moment I will put dni. don't take it personally :)
+ I respect all nonproblematic ship opinions! but ships I personally don't like/I'm not in the mood for at the moment I prefer to not interact. don't take it personally :)
 
 proshippers DNI ever 
 
