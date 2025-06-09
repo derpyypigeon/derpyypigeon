@@ -17,7 +17,7 @@ ______________________________
 
 I respect all nonproblematic ship opinions, I dont mind if you ship smth I dont like! I just prefer ships I like to int :)
 
-My fav ships! (Pls int!) - Destiel (SPN), Megstiel (SPN), Drowley (SPN), Crobby (SPN), Saileen (SPN), Hilson (House), Jopper (ST), Kimchie (The Boys), Starbell/Hughlight (The Boys),
+My fav ships! (Pls int!)💙 - Destiel (SPN), Megstiel (SPN), Drowley (SPN), Crobby (SPN), Saileen (SPN), Hilson (House), Jopper (ST), Kimchie (The Boys), Starbell/Hughlight (The Boys)
 
 Main ships I dislike - Byler (ST), Steddie (ST), Most noncanon The Boys ships.
 
