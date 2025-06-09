@@ -15,11 +15,11 @@ ______________________________
 
 ______________________________
 
- I'm a multishipper and I respect all nonproblematic ship opinions!
- I'm fine with most ships interacting <3
- 
+I respect all nonproblematic ship opinions & I'm fine with most ships interacting <3
+My fav ships! (Preferred!) - Destiel (SPN), Megstiel (SPN), Drowley (SPN), Crobby (SPN), Saileen (SPN), Hilson (House), Starbell/Hughlight (The Boys)
 
-proshippers DNI
+Proshippers DNI 
+ 
 
 ______________________________
 
