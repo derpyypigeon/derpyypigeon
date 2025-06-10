@@ -3,7 +3,7 @@
 Call me Pigeon or Birdie! may also call me the name of the skin I'm in! -
 I'm an astronomy nerd and art lover :D
 
-Current obsessions: Supernatural & The Boys. Just started House!
+Current obsessions: Supernatural, The Boys, House
 
 Sign my strawpage if you'd like!:
 https://pigeonnns.straw.page
