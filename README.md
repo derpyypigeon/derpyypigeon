@@ -3,7 +3,7 @@
 Call me Pigeon or Birdie! may also call me the name of the skin I'm in! -
 I'm an astronomy nerd and art lover :D
 
-Current obsessions: Supernatural, The Boys, House
+Current obsessions: Supernatural, The Boys, House MD
 
 Sign my strawpage if you'd like!:
 https://pigeonnns.straw.page
@@ -15,11 +15,10 @@ ______________________________
 
 ______________________________
 
-I respect all nonproblematic ship opinions, I dont mind if you ship smth I dont like! I just prefer ships I like to int :)
+I respect all nonproblematic ship opinions!
 
 My fav ships! (Pls int!)💙 - Destiel (SPN), Megstiel (SPN), Drowley (SPN), Crobby (SPN), Saileen (SPN), Hilson (House), Jopper (ST), Kimchie (The Boys), Starbell/Hughlight (The Boys)
 
-Main ships I dislike - Byler (ST), Steddie (ST), Most noncanon The Boys ships.
 
 Proshippers DNI.
  
