@@ -5,7 +5,7 @@ I'm an astronomy nerd and art lover :D
 
 Current obsessions: Supernatural, The Boys, House MD
 
-Sign my strawpage if you'd like!:
+Sign/draw on my strawpage if you'd like!:
 https://pigeonnns.straw.page
 
 ______________________________
