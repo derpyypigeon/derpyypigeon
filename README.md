@@ -17,7 +17,7 @@ ______________________________
 
 I respect all nonproblematic ship opinions!
 
-My fav ships! (Pls int!)💙 - Destiel (SPN), Megstiel (SPN), Drowley (SPN), Crobby (SPN), Saileen (SPN), Hilson (House), Jopper (ST), Kimchie (The Boys), Starbell/Hughlight (The Boys)
+My fav ships! (Pls int!)💙 - Destiel (SPN), Megstiel (SPN), Drowley (SPN), Crobby (SPN), Saileen (SPN), Hilson (House), Kimchie (The Boys), Starbell/Hughlight (The Boys)
 
 
 Proshippers DNI.
