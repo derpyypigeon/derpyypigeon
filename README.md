@@ -17,7 +17,7 @@ ______________________________
 
 I respect all nonproblematic ship opinions!
 
-My fav ships! (Pls int!)💙 - Destiel (SPN), Megstiel (SPN), Drowley (SPN), Crobby (SPN), Saileen (SPN), Hilson, Hudson & Huddy (House), Chameron (House)
+My fav ships! (Pls int!)💙 - Destiel (SPN), Crobby (SPN), Saileen (SPN), SamAndy (SPN), Hilson (House), Chameron (House)
 
 
 Proshippers DNI.
