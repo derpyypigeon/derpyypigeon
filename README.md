@@ -17,7 +17,7 @@ ______________________________
 
 I respect all nonproblematic ship opinions!
 
-My fav ships! (Pls int!)💙 - Destiel (SPN), Crobby (SPN), Saileen (SPN), SamAndy (SPN), Samwena (SPN), Hilson (House), Chameron (House)
+My fav ships! (Pls int!)💙 - Destiel (SPN), Crobby (SPN), Saileen (SPN), SamAndy (SPN), Samwena (SPN), Hilson (House), Huddy (House), Chameron (House)
 
 
 Proshippers DNI.
