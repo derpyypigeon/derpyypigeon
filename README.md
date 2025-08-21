@@ -1,6 +1,6 @@
 (i dont know how to add images to this, so its boring mb😭)
 
-Call me Pigeon or Birdie! may also call me the name of the skin I'm in! -
+Call me Pigeon, Birdie or Cas! -
 I'm an astronomy nerd and art lover :D
 
 Current obsessions: Supernatural & House MD
